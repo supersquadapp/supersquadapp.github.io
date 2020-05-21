@@ -1,1 +1,0 @@
-# supersquadapp.github.io
